@@ -13,4 +13,8 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--> I love drawing
+I love hanging out with my kids
+I enjoy working
+I enjoy outdoor chores
+
